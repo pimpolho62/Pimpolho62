@@ -6,4 +6,5 @@ Eu estudo na escola [Nicota](https://www.instagram.com/escola.donanicota/)
 🦇
 
 
-![](https://github.com/pimpolho62/Pimpolho62/assets/170759635/ce376a27-bff1-4cbf-b039-de292270bcd7)
+![](https://github.com/pimpolho62/Pimpolho62/assets/170759635/0c5f627a-ac24-4a0c-9c33-7baf891ae3f1)
+
